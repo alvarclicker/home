@@ -11,7 +11,7 @@ so first of all here are the types of websites i have.
 <br>
 <br>
 <br>
-1. <a>ART CLASS</a> <a href=”_______________”>
+1. <a>ART CLASS</a> <a href=”https://alvarclicker.github.io/home/aяtclаss”>
 <br>
 <br>
 <br>
